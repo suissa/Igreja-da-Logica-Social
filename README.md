@@ -7,18 +7,27 @@ Imaginem uma "Igreja/Religiao" onde seus "seguidores" aceitassem e fizessem apen
 
 E sim eu mesmo sou um exemplo de que podemos "ter empatia" apenas baseando-se na lógica, ou seja, você nao precisa ser de humanas para possuir essa mesma visao, basta que você tente se colocar no lugar do outro.
 
-## Deus
+## Conceitos Lógicos
+
+### Empatia
+
+### Colaboratividade
+
+## Conceitos Físicos
+
+### Orações
+
+### Milagres
+
+### Deus
 
 Primeiramente, para mim, o conceito de Deus é quase exatamente o que o Universo é, tirando a parte da **onipotência**.
 
-### Onisciência
+#### Onisciência
 
-### Onipresença
+#### Onipresença
 
-## Dogmas
+## Dogmas/Leis
 
 Os dogmas aceitos sao **única e exclusivamente** as leis da Física que ja foram arduamente provadas.
 
-## Orações
-
-## Milagres
