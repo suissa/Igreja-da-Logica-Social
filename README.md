@@ -19,7 +19,7 @@ Eu sempre tive **muitas** oportunidades na vida, até porque meu avô (que tinha
 
 <br>
 
-> **Bah! Se eu cheguei onde estou e sou o maior irresponsavel e preguiçoso do mundo, qualquer um conseguiria me passar facilmente se tivesse as mesmas optorunidades e fosse mais empenhado.**
+> **Bah! Se eu cheguei onde estou e sou o maior irresponsavel e preguiçoso do mundo, qualquer um conseguiria ir além do que fui facilmente caso tivesse as mesmas oportunidades e fosse mais empenhado.**
 
 <br>
 Nisso minha mente deu um estalo e me respondeu:
