@@ -1,4 +1,4 @@
-# Igreja-da-Logica-Social
+# Igreja da Logica Social
 
 > Minha ideia de Igreja p/ pessoas pensantes.
 
@@ -6,6 +6,11 @@
 Imaginem uma "Igreja/Religiao" onde seus "seguidores" aceitassem e fizessem apenas açōes lógicas.
 
 E sim eu mesmo sou um exemplo de que podemos "ter empatia" apenas baseando-se na lógica, ou seja, você nao precisa ser de humanas para possuir essa mesma visao, basta que você tente se colocar no lugar do outro.
+
+## Nomes
+
+- Leandro Gomes: Igreja Universal da Lógica Natural
+- 
 
 ## Conceitos Lógicos
 
