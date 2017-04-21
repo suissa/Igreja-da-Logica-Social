@@ -29,12 +29,13 @@ Levando isso em considearaçao, há algum tempo atrás peguei-me questionando-me
 
 <br>
 
-> **Bah! Se eu cheguei onde estou e sou o maior irresponsavel e preguiçoso do mundo, qualquer um conseguiria me passar facilmente se tivesse as mesmas optorunidades e fosse mais empenhado.**
+> **Bah! Se eu cheguei onde estou sendo o maior irresponsável e preguiçoso do mundo qualquer um conseguiria me passar facilmente se tivesse as mesmas oportunidades e fosse mais empenhado do que eu.**
 
 <br>
+
 Nisso minha mente deu um estalo e me respondeu:
 
-> **Entao por que você nao cria essas mesmas oportunidades para todos?**
+> **Então por que você não cria essas mesmas oportunidades para todos?**
 
 <br>
 
@@ -56,5 +57,5 @@ Primeiramente, para mim, o conceito de Deus é quase exatamente o que o Universo
 
 ## Dogmas/Leis
 
-Os dogmas aceitos sao **única e exclusivamente** as leis da Física que ja foram arduamente provadas.
+### Os dogmas aceitos por essa "Igreja/Religião" são **única e exclusivamente** as leis da Física que já foram arduamente comprovadas.
 
