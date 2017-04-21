@@ -1,8 +1,8 @@
 # Igreja da Lógica Social
 
-> Apresento-lhes minha ideia de uma Igreja para pessoas pensantes assim como eu
+> Apresento-lhes minha ideia de uma Igreja para pessoas pensantes assim como eu!
 
-Imaginem uma "Igreja/Religião" onde os seus "seguidores" aceitem e façam apenas açōes lógicas baseadas nas leis das cieências exatas
+Imaginem uma "Igreja/Religião" onde os seus "seguidores" aceitem e façam apenas açōes lógicas baseadas nas leis das ciências exatas.
 
 E sim eu mesmo sou um exemplo de que podemos "ter empatia" apenas baseando-sena lógica, ou seja, você nao precisa ser de humanas para possuir essa mesma visao, basta que você tente se colocar no lugar do outro.
 
