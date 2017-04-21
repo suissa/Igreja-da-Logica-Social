@@ -4,9 +4,9 @@
 
 Imaginem uma "Igreja/Religião" onde os seus "seguidores" aceitem e façam apenas açōes lógicas baseadas nas leis das ciências exatas.
 
-E sim eu mesmo sou um exemplo de que podemos "ter empatia" apenas baseando-sena lógica, ou seja, você nao precisa ser de humanas para possuir essa mesma visao, basta que você tente se colocar no lugar do outro.
+E sim, eu mesmo sou um exemplo de que podemos "ter empatia" apenas baseando-se na lógica, ou seja, você não precisa ser de humanas para possuir essa mesma visão, basta que você tente colocar-se no lugar do outro.
 
-## Nomes
+## Lista de nomes sugeridos até agora
 
 - Leandro Gomes: Igreja Universal da Lógica Natural
 - 
@@ -15,11 +15,17 @@ E sim eu mesmo sou um exemplo de que podemos "ter empatia" apenas baseando-sena 
 
 ### Empatia
 
-> Nesse quesito disseratarei sobre como EU criei empatia baseando-me apenas no meu intelecto e na lógica.
+![]()
+
+*fonte: https://pt.wikipedia.org/wiki/Empatia#Modelo_da_empatia*
+
+> Nesse quesito dissertarei sobre como EU criei empatia baseando-me apenas no meu intelecto e na lógica.
 
 <br>
 
-Eu sempre tive **muitas** oportunidades na vida, até porque meu avô (que tinha uma consideravel quantia de dinheiro) pagou meus estudos no melhor colégio particular da minha cidade natal (Ponta Gross - PR). Levando isso em considearaçao, ha algum tempo atras peguei-me questionando-me:
+Eu sempre tive **muitas** oportunidades na vida porque meu avô (ele tinha uma condição de vida boa fruto de muito trabalho) pagou meus estudos no melhor colégio particular da minha cidade natal (Ponta Grossa - PR). 
+
+Levando isso em considearaçao, há algum tempo atrás peguei-me questionando-me:
 
 <br>
 
